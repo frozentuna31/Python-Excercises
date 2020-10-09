@@ -1,3 +1,3 @@
 # Demo
 
-terserah deh
+terserah deh, gua mau belajar
